@@ -39,3 +39,8 @@
 
 
 - ur cute :3
+- i love moistcritikal/penguinz0
+- i love joe bart
+- i love future/individual
+- i love python
+- i luv u
